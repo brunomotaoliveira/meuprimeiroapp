@@ -1,0 +1,1 @@
+Aplicativo apenas para estudos
